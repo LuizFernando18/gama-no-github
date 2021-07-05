@@ -1,0 +1,1 @@
+Essa primeira semana do programa Hiring Coders tem sido bastante interessante. Tenho certeza que esse programa será o ponto inicial da minha carreira em tecnologia.
